@@ -1,1 +1,2 @@
-AllinCoin will be the best investment of the cryptocurrency market
+AllCoin will be the best investment of the cryptocurrency market
+For anonymous transactions
